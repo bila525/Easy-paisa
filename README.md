@@ -1,2 +1,2 @@
 # Easy-paisa
-Store 
+earning money 
